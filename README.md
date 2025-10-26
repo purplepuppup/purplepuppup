@@ -1,3 +1,14 @@
 ![image alt](https://github.com/purplepuppup/purplepuppup/blob/e25f6432ed12efeb0a7717d54a7c0cc1cf791ffc/shiro1%20(3).png)
-🍂 sarah . she/her !
-   read strawpage for more info . 🍁
+# 🍁　　𓏵　　 ABOUT ME 　⏖　　!!
+　.　　　 　 ✧　.　𓋰　.　sarah  ,  she/her　୨ ୧ 🍂
+　　　
+ ꪆ୧  　  　　　IM INTO - pressure,gnb,pjsk,bear alpha (bear* barely),DOD,f1,kaleidescope,bad things,grace
+ 　　　
+ 𐙚 INT !! : cool people , OK ? OK. ^^
+   　　　
+ 𐙚 DNI !! : any weird/problematic people
+　　　
+ [✚  　  my roblox!](https://www.roblox.com/users/3757541704/profile)　　　
+
+   
+   
