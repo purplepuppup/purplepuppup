@@ -8,7 +8,9 @@
    　　　
  𐙚 DNI !! : any weird/problematic people
 　　　
- [✚  　  my roblox!](https://www.roblox.com/users/3757541704/profile)　　　
+ [✚  　  my roblox!](https://www.roblox.com/users/3757541704/profile)　
+
+ ![image alt](https://github.com/purplepuppup/purplepuppup/blob/4ec2a1fea4a26b67782e322b6864ead91ad959f9/Adobe%20Express%20-%20file%20(1).jpg)
 
    
    
