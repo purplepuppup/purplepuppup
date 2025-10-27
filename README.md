@@ -10,7 +10,7 @@
 　　　
  [✚  　  my roblox!](https://www.roblox.com/users/3757541704/profile)　
 
- ![image alt](https://github.com/purplepuppup/purplepuppup/blob/4ec2a1fea4a26b67782e322b6864ead91ad959f9/Adobe%20Express%20-%20file%20(1).jpg)
+ ![image alt](https://github.com/purplepuppup/purplepuppup/blob/4ec2a1fea4a26b67782e322b6864ead91ad959f9/Adobe%20Express%20-%20file%20(1).jpg) ![image alt](https://github.com/purplepuppup/purplepuppup/blob/d3cee68355b31f31143265eb3c57cf9b7c84e7ca/Adobe%20Express%20-%20file%20(4).jpg)
 
    
    
