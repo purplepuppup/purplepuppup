@@ -1,5 +1,5 @@
 #![image alt](https://github.com/purplepuppup/purplepuppup/blob/60a72e8502725dd6d481778b7ae6822754648d9f/illubanner1-removebg-preview%20(2).png)
- 🍁　　𓏵　　 ABOUT ME 　⏖　　!!
+ # 🍁　　𓏵　　 ABOUT ME 　⏖　　!!
 　.　　　 　 ✧　.　𓋰　.　sarah  ,  she/her　୨ ୧ 🍂
 　　　
  ꪆ୧  　  　　　IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside and the beatles
