@@ -2,7 +2,7 @@
 # 🍁　　𓏵　　 ABOUT ME 　⏖　　!!
 　.　　　 　 ✧　.　𓋰　.　sarah  ,  she/her　୨ ୧ 🍂
 　　　
- ꪆ୧  　  　　　IM INTO - pressure,gnb,pjsk,bear alpha (bear* barely),DOD,f1,kaleidescope,bad things,grace
+ ꪆ୧  　  　　　IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside and the beatles
  　　　
  𐙚 INT !! : cool people , OK ? OK. ^^
    　　　
