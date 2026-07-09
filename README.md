@@ -1,12 +1,12 @@
 #![image alt](https://github.com/purplepuppup/purplepuppup/blob/f1f10deadd43d3349900c374f9cde58e94df5d52/banner1.png)
- # 　　𓏵　💍　 ABOUT ME 　⏖　　!!
+  　#　𓏵　💍　 ABOUT ME 　⏖　　!!
 　.　　　 　 ✧　.　𓋰　.　sarah  ,  she/her　୨ ୧ 🧶
 　　　
- ꪆ୧  　 💼 　　　IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside and the beatles
+ ꪆ୧  　 💼 　　　# IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside and the beatles
  　　　
- 𐙚 INT !! : cool people , OK ? OK. ^^
+ # 𐙚 INT !! : cool people , OK ? OK. ^^
    　　　
- 𐙚 DNI !! : any weird/problematic people
+# 𐙚 DNI !! : any weird/problematic people
 　　　
  [✚  　  my roblox!](https://www.roblox.com/users/3757541704/profile)　
 
