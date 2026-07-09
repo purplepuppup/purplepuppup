@@ -2,7 +2,7 @@
   　##　𓏵　💍　 ABOUT ME 　⏖　　!!
 　.　　　 　# ✧　.　𓋰　.　sarah  ,  she/her　୨ ୧ 🧶
 　　　
- # ꪆ୧  　 💼 　　　 IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside and the beatles
+ # ꪆ୧  　 💼 　　　 IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside,the beatles and megadeth.
  　　　
   𐙚 INT !! : cool people , OK ? OK. ^^ 　　　
  𐙚 DNI !! : any weird/problematic people
