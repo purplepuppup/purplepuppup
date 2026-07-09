@@ -2,7 +2,7 @@
   　𓏵　💍　 ABOUT ME 　⏖　　!!
 　.　　# ✧　.　𓋰　 ୨ ୧ 🧶
 　　　
- # ꪆ୧   𓋰　. 💼 　✧  -->  IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside,the beatles and megadeth.
+ # ꪆ୧   𓋰　. 💼 　✧  -->  IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside,the beatles,hotline miami and megadeth.
  　　　
   𐙚 INT !! : cool people , OK ? OK. ^^ 　　　
  𐙚 DNI !! : any weird/problematic people
