@@ -1,5 +1,5 @@
 #![image alt](https://github.com/purplepuppup/purplepuppup/blob/f1f10deadd43d3349900c374f9cde58e94df5d52/banner1.png)
-  　#𓏵　💍　 ABOUT ME 　⏖　　!!
+  　𓏵　💍　 ABOUT ME 　⏖　　!!
 　.　　# ✧　.　𓋰　.　  ,  　୨ ୧ 🧶
 　　　
  # ꪆ୧  𓋰　. 💼 　✧　　 IM INTO - gnb,pjsk,bear alpha (bear* barely),kaleidescope,grace,miside,the beatles and megadeth.
